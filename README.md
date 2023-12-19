@@ -21,7 +21,7 @@ Please feel free to reach out to discuss potential collaborations, internships, 
 
 Thank you for your interest!
 
-[Angel Leon]
-[Leon.Angelf15@gmail.com]
+Angel Leon
+Leon.Angelf15@gmail.com
 
 
