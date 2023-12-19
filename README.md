@@ -21,7 +21,7 @@ Please feel free to reach out to discuss potential collaborations, internships, 
 
 Thank you for your interest!
 
-Angel Leon, Feel free to contact me at
+My name is Angel Leon, Feel free to contact me at
 - Leon.Angelf15@gmail.com
 
 
