@@ -2,7 +2,7 @@
 
 ## Academic Pursuits
 - Currently pursuing a Bachelor's degree in Mathematics with a minor in Computer Science at University of Houston-Downtown.
-- Expected to graduate on: May, 2025.
+- Expected to graduate on: August, 2026.
   
 
 ## Interests and Career Aspirations
